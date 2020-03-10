@@ -1,1 +1,0 @@
-# DiccionariTecnol-gic
